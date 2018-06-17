@@ -18,5 +18,9 @@ A couple Examples of this color combination:
 My recommendation for the wedding (Groomsman Required, Guests Optional, but Recommended)
 * Navy Suit
 * White Dress Shirt - Spread Collar
-* Navy OR Burgandy Tie - Solid and Wool. Not Patterned or Silk. More on this later
-* Walnut/Tan Oxfords - Plain or Brogues are fine. More on this later
+* Navy OR Burgandy Tie - Solid and Wool. Not Patterned or Silk, more on this later
+* Walnut/Tan Oxfords - Plain or Brogues are fine, more on this later
+
+## Shopping List
+
+### White Dress Shirt - Spread Collar
