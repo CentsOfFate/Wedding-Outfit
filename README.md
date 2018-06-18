@@ -9,6 +9,8 @@ The Official Colors for the wedding will be:
 * Burgandy
 * Walnut
 
+![alt text](https://www.colorcombos.com/combomaker.html?design=squares&output_width=100&size_option=element&colors=102D49,FFFFFF,4D0B0B,7C5C3F&background_color=FFFFFF&show_hex_flag=Y)
+
 The reason for this is that all these colors match really well with each other, especially for the beginning of the Fall Season. Mid-October is right when all the trees are solidly turning colors with yellow, red and brown hues. The White and Navy is a younger, trendier color combination while the Burgandy and Walnut will complement the season with their warm overtones.
 
 A couple Examples of this color combination:
