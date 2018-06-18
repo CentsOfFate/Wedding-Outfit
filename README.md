@@ -1,7 +1,7 @@
-# Wedding Outfit Repository for Charlie x Ryne Wedding October 2019
+# Wedding Outfit Survival Guide for Charlie x Ryne Wedding October 2019
 
 ## Colors
-The colors for the wedding will be:
+The Official Colors for the wedding will be:
 * White
 * Navy
 * Burgandy
@@ -19,6 +19,7 @@ My recommendation for the wedding (Groomsman Required, Guests Optional, but Reco
 * Navy Suit
 * White Dress Shirt - Spread Collar Recommended
 * Navy OR Burgandy Tie - Solid and Wool. Patterned is fine, but don't go Silk, more on this later
+* White Pocket Square
 * Walnut/Tan Oxfords - Plain or Brogues are fine, more on this later
 
 ## Shopping List
@@ -41,13 +42,16 @@ All of these Dress Shirts are all good quality shirts. Naturally, the more you s
 
 I recommend Spread Collar for the wedding, since this is a formal occasion. Spread Collar will "complete" the suit by having all the sharp lines be in the right places. See this [Example](http://hespokestyle.com/wp-content/uploads/2016/05/navy-suit-windowpane-spread-collar-shirt-blue-striped-tie-oxblood-shoes-business-wedding-outfit-idea-men-8-800x533.jpg). The Spread with the tie gives the sharp line style that makes you look stronger and more masculine. Compare that with this [Example](https://i.dmarge.com/2015/08/Tab-Collar.jpg). Point Collar doesn't have as sharp of a look, and looks less formal. Since this is a wedding, go Spread Collar.
 
-### Navy or Burgandy Tie
+### Navy or Burgandy Tie/White Pocket Square
 
 ONLY Tier:
 * [Tie Bar - Navy](https://www.thetiebar.com/product/20902)
 * [Tie Bar - Burgandy](https://www.thetiebar.com/product/22429) - What I will be wearing
+* [Tie Bar - Pocket Square](https://www.thetiebar.com/product/PS062) - What I will be wearing
 
 WOOL! The season is going to be Fall, so going wool is going to make you look really sharp. Don't go silk if you can't help it. The weather outside is going to be faded colors and the shininess of silk is going to make you look out of place. The warmth and unassuming nature of wool is going make you look better, I promise you.
+
+White Pocket Square is a great neutral color, and will match with a White Dress Shirt. It helps pull together the look.
 
 Tie Bar is awesome. Their ties are $20 for a great quality tie. Go 3 Inches for the size of the tie.
 
@@ -69,9 +73,13 @@ In terms of Dress Shoe type, it doesn't really matter. Plain Oxford, Cap Toe, Ha
 ### Navy Suit
 
 Budget Tier:
-[Stafford]
-
-Best Bang for your Buck Tier:
+[Stafford Suit Jacket](https://www.jcpenney.com/p/stafford-travel-wool-blend-stretch-classic-fit-suit-jacket/ppr5007160380?pTmplType=regular&catId=SearchResults&searchTerm=Stafford+Suit&productGridView=medium&N=270&badge=onlyatjcp%7Ccollection) and [Stafford Suit Pants](https://www.jcpenney.com/p/stafford-travel-wool-blend-stretch-flat-front-suit-pants-classic-fit/ppr5007193643?pTmplType=regular&enrId=enr5007160392)
 
 God Tier:
-[Suit Supply]
+[Suit Supply](https://us.suitsupply.com/en_US/suits/napoli-navy-plain/P5229MI.html?cgid=Suits&prefn1=colorID&prefn2=fit&prefv1=blue&prefv2=Napoli%7CSienna)
+
+JCPenney's Stafford Suit offering is not too shabby for the price. The fit isn't super perfect, but I wouldn't expect that for a Sub $200 Suit. Suit Supply is awesome, if you want to shell out $400. I'm don't know too many brands in the ~$200 range, so I could use some help to help identify a brand.
+
+Overall:
+
+* Budget Tier: 
