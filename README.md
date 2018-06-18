@@ -82,4 +82,8 @@ JCPenney's Stafford Suit offering is not too shabby for the price. The fit isn't
 
 Overall:
 
-* Budget Tier: 
+* Budget Tier: Around $250 for all the Budget Tier Items
+
+If you had to buy everything from scratch for the Budget Tier for this wedding, you're total cost would be $250 to own everything. That's is not that shabby to be honest. Everything in the Budget Tier are decent quality items that will go great in your wardrobe even after the wedding. 
+
+
