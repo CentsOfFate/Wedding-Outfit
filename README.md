@@ -17,10 +17,23 @@ A couple Examples of this color combination:
 
 My recommendation for the wedding (Groomsman Required, Guests Optional, but Recommended)
 * Navy Suit
-* White Dress Shirt - Spread Collar
+* White Dress Shirt - Spread Collar Recommended
 * Navy OR Burgandy Tie - Solid and Wool. Not Patterned or Silk, more on this later
 * Walnut/Tan Oxfords - Plain or Brogues are fine, more on this later
 
 ## Shopping List
 
-### White Dress Shirt - Spread Collar
+### White Dress Shirt
+
+Budget Tier:
+* [Stafford](https://www.jcpenney.com/p/stafford-travel-easy-care-broadcloth-dress-shirt/pp5003521148?pTmplType=regular&catId=cat100240025&deptId=dept20000014&urlState=/g/mens-shirts/N-bwo3yD1nohp5Z7i&sort=BS&productGridView=medium&badge=onlyatjcp)
+* [Target](https://www.target.com/p/men-s-slim-fit-button-down-dress-shirt-goodfellow-co-153/-/A-52492012?preselect=52377256#lnk=sametab)
+
+Best Bang for your Buck Tier:
+* [Amazon's Brand](https://www.amazon.com/Buttoned-Down-Fitted-Spread-Collar-Non-Iron/dp/B01IOY5832/ref=sr_1_7?ie=UTF8&qid=1529279921&sr=8-7&keywords=Buttoned+Down) - What I will be wearing
+* [Nordstorm](https://shop.nordstrom.com/s/nordstrom-mens-shop-trim-fit-non-iron-solid-dress-shirt/4002995?origin=category-personalizedsort&fashioncolor=WHITE&cm_mmc=Linkshare-_-partner-_-10-_-1&siteId=th9ILo5LtqE-McZccvR2Ns7c81Ioin5aDg)
+
+God-Tier:
+* [Brooks Brothers](https://www.brooksbrothers.com/Regent-Fitted-Dress-Shirt%2C-Non-Iron-Point-Collar/224Q,default,pd.html?dwvar_224Q_Color=WHIT&contentpos=2&cgid=0203)
+* [Ledbury](https://www.ledbury.com/collections/dress-shirts/products/white-fine-twill-mid-spread-dress-shirt?variant=33457070281&utm_source=idev&utm_medium=affiliate&utm_campaign=dappered)
+
