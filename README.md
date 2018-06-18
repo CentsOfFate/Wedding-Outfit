@@ -54,10 +54,24 @@ Tie Bar is awesome. Their ties are $20 for a great quality tie. Go 3 Inches for 
 ### Walnut Dress Shoes
 
 Budget Tier:
-* [JCPenney]
+* [JCPenney](https://www.jcpenney.com/p/product/pp5003861327?pTmplType=regular)
 
 Best Bang for your Buck Tier:
-* [Johnston and Murphy] - What I will be wearing
+* [Johnston and Murphy](https://www.johnstonmurphy.com/conard-cap-toe/9488.html?dwvar_9488_color=Tan%20Italian%20Calfskin) - What I will be wearing
 
 God Tier:
-* [Allen Edmonds] 
+* [Allen Edmonds](https://www.allenedmonds.com/shoes/mens-shoes/oxford-derby-shoes/strand-cap-toe-oxford/SF1635.html?dwvar_SF1635_color=1635)
+
+JCPenny and J&M would be great. Try to go for a Dress Shoe that's a solid Walnut/Tan color like [this](https://www.styleforum.net/content/type/61/id/1251657/width/200/height/400/flags/LL). The striking Walnut shoe will go perfectly for the fall season. Allen Edmonds, although unbelievable in quality, is going to be a lot to ask for at a $400 retail price. J&M strike a good price point for quality though.
+
+In terms of Dress Shoe type, it doesn't really matter. Plain Oxford, Cap Toe, Half Wingtips, Full Wing Tips are all fine. Single or Double Monkstraps are very fashion forward, and I won't be opposed to them. Boat Shoes and Penny Loafers won't be allowed.
+
+### Navy Suit
+
+Budget Tier:
+[Stafford]
+
+Best Bang for your Buck Tier:
+
+God Tier:
+[Suit Supply]
