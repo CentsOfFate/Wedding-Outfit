@@ -92,20 +92,20 @@ If you had to buy everything from scratch for the Budget Tier for this wedding, 
 ## Other Options if not going Official Colors
 
 # Suits/Blazer and Trouser Combination
-[Charcoal Grey Suit](https://mensusasuite.files.wordpress.com/2015/06/charcoal-suit2-button-notch-single-breasted-ike-behar-andrews-formals-mvi8qufx.jpg)
-[Light Grey Suit](http://statics.suitsupply.com/images/products/Suits/zoom/Suits_Light_Grey_Plain_Washington_P3424_Suitsupply_Online_Store_1.jpg)
-[Navy Blazer with Tan Trousers](https://smhttp-ssl-33667.nexcesscdn.net/manual/wp-content/uploads/2017/03/mens-navy-suit-chinos-loafers-street-style.jpg)
-[Navy Blazer with Wool Trey Trousers](https://i.pinimg.com/736x/0e/db/19/0edb1929085f51357c287a17fbeaea01.jpg)
+* [Charcoal Grey Suit](https://mensusasuite.files.wordpress.com/2015/06/charcoal-suit2-button-notch-single-breasted-ike-behar-andrews-formals-mvi8qufx.jpg)
+* [Light Grey Suit](http://statics.suitsupply.com/images/products/Suits/zoom/Suits_Light_Grey_Plain_Washington_P3424_Suitsupply_Online_Store_1.jpg)
+* [Navy Blazer with Tan Trousers](https://smhttp-ssl-33667.nexcesscdn.net/manual/wp-content/uploads/2017/03/mens-navy-suit-chinos-loafers-street-style.jpg)
+* [Navy Blazer with Wool Trey Trousers](https://i.pinimg.com/736x/0e/db/19/0edb1929085f51357c287a17fbeaea01.jpg)
 
 # Shirts
-[Sky Blue](https://i.pinimg.com/736x/6c/cd/8d/6ccd8d2d703564f7ace000bdefd9627a--dark-blue-suit-blue-suit-men.jpg)
-[Navy and White Gingham](https://cdna.lystit.com/photos/ddc1-2015/03/27/jcrew-classic-navy-ludlow-traveler-shirt-in-navy-gingham-blue-product-1-559128964-normal.jpeg)
-[White and Blue Stripe](http://suitored.com/wp-content/uploads/2010/10/Sky-Blue-White-Striped-Dress-Shirt-by-Drakes-London-01.jpg)
+* [Sky Blue](https://i.pinimg.com/736x/6c/cd/8d/6ccd8d2d703564f7ace000bdefd9627a--dark-blue-suit-blue-suit-men.jpg)
+* [Navy and White Gingham](https://cdna.lystit.com/photos/ddc1-2015/03/27/jcrew-classic-navy-ludlow-traveler-shirt-in-navy-gingham-blue-product-1-559128964-normal.jpeg)
+* [White and Blue Stripe](http://suitored.com/wp-content/uploads/2010/10/Sky-Blue-White-Striped-Dress-Shirt-by-Drakes-London-01.jpg)
 
 # Shoes
-[Brown Dress Shoes](https://www.allenedmonds.com/shoes/mens-shoes/oxford-derby-shoes/strand-cap-toe-oxford/SF1635.html?dwvar_SF1635_color=6105#prefn1=refinementColor&prefv1=Brown&start=14)
+* [Brown Dress Shoes](https://www.allenedmonds.com/shoes/mens-shoes/oxford-derby-shoes/strand-cap-toe-oxford/SF1635.html?dwvar_SF1635_color=6105#prefn1=refinementColor&prefv1=Brown&start=14)
 
 # Sweaters
-[Charcoal Grey Sweater with Tie](https://www.tmlewin.com/dw/image/v2/BBQF_PRD/on/demandware.static/-/Sites-tml-catalog-en/default/dw0164700e/images/original/51941.jpg?sw=1556&sh=1680&sm=fit)
-[Navy Sweather with Tie](https://i.pinimg.com/736x/20/e3/46/20e34603c9291a6ff556d81b5430424d--boy-fashion-fashion-suits.jpg)
+* [Charcoal Grey Sweater with Tie](https://www.tmlewin.com/dw/image/v2/BBQF_PRD/on/demandware.static/-/Sites-tml-catalog-en/default/dw0164700e/images/original/51941.jpg?sw=1556&sh=1680&sm=fit)
+* [Navy Sweather with Tie](https://i.pinimg.com/736x/20/e3/46/20e34603c9291a6ff556d81b5430424d--boy-fashion-fashion-suits.jpg)
 
