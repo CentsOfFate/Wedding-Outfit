@@ -18,7 +18,7 @@ A couple Examples of this color combination:
 My recommendation for the wedding (Groomsman Required, Guests Optional, but Recommended)
 * Navy Suit
 * White Dress Shirt - Spread Collar Recommended
-* Navy OR Burgandy Tie - Solid and Wool. Not Patterned or Silk, more on this later
+* Navy OR Burgandy Tie - Solid and Wool. Patterned is fine, but don't go Silk, more on this later
 * Walnut/Tan Oxfords - Plain or Brogues are fine, more on this later
 
 ## Shopping List
@@ -41,3 +41,23 @@ All of these Dress Shirts are all good quality shirts. Naturally, the more you s
 
 I recommend Spread Collar for the wedding, since this is a formal occasion. Spread Collar will "complete" the suit by having all the sharp lines be in the right places. See this [Example](http://hespokestyle.com/wp-content/uploads/2016/05/navy-suit-windowpane-spread-collar-shirt-blue-striped-tie-oxblood-shoes-business-wedding-outfit-idea-men-8-800x533.jpg). The Spread with the tie gives the sharp line style that makes you look stronger and more masculine. Compare that with this [Example](https://i.dmarge.com/2015/08/Tab-Collar.jpg). Point Collar doesn't have as sharp of a look, and looks less formal. Since this is a wedding, go Spread Collar.
 
+### Navy or Burgandy Tie
+
+ONLY Tier:
+* [Tie Bar - Navy](https://www.thetiebar.com/product/20902)
+* [Tie Bar - Burgandy](https://www.thetiebar.com/product/22429) - What I will be wearing
+
+WOOL! The season is going to be Fall, so going wool is going to make you look really sharp. Don't go silk if you can't help it. The weather outside is going to be faded colors and the shininess of silk is going to make you look out of place. The warmth and unassuming nature of wool is going make you look better, I promise you.
+
+Tie Bar is awesome. Their ties are $20 for a great quality tie. Go 3 Inches for the size of the tie.
+
+### Walnut Dress Shoes
+
+Budget Tier:
+* [JCPenney]
+
+Best Bang for your Buck Tier:
+* [Johnston and Murphy] - What I will be wearing
+
+God Tier:
+* [Allen Edmonds] 
