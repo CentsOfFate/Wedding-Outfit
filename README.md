@@ -64,7 +64,7 @@ God Tier:
 
 JCPenny and J&M would be great. Try to go for a Dress Shoe that's a solid Walnut/Tan color like [this](https://www.styleforum.net/content/type/61/id/1251657/width/200/height/400/flags/LL). The striking Walnut shoe will go perfectly for the fall season. Allen Edmonds, although unbelievable in quality, is going to be a lot to ask for at a $400 retail price. J&M strike a good price point for quality though.
 
-In terms of Dress Shoe type, it doesn't really matter. Plain Oxford, Cap Toe, Half Wingtips, Full Wing Tips are all fine. Single or Double Monkstraps are very fashion forward, and I won't be opposed to them. Boat Shoes and Penny Loafers won't be allowed.
+In terms of Dress Shoe type, it doesn't really matter. Plain Oxford, Cap Toe, Half Wingtips, Full Wingtips are all fine. Single or Double Monkstraps are very fashion forward, and I won't be opposed to them. Boat Shoes and Penny Loafers won't be allowed.
 
 ### Navy Suit
 
